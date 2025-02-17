@@ -1,0 +1,1 @@
+ https://NikitaSemikov.github.io/rsschool-cv/cv
